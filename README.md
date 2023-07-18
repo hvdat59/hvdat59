@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hvdat59
-- 👀 I’m interested in mt onw
-- 🌱 I’m currently learning coding
+- 👀 I’m interested on my own
+- 🌱 I’m currently learning code
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me h.dat5599
 
